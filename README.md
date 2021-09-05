@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Dem0riaN
 - 👀 I’m interested in ... there are pluses in the cemetery
 - 🌱 I’m currently learning ... java... 
-- 💞️ I’m looking to collaborate on ... minecraft
+- 💞️ I’m looking MINE to collaborate on ... CAMP
 - 📫 How to reach me ... nothing
 
 <!---
